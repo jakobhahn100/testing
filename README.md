@@ -1,4 +1,4 @@
 # testing
 testing my setup
 etwas was ich auf meinem computer geschrieben habe
-was ist das
+jz habe ich eine kopie auf r studio
