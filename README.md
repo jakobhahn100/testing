@@ -4,4 +4,4 @@ etwas was ich auf meinem computer geschrieben habe
 jz habe ich eine kopie auf r studio
 warum funktioniert das nicht
 hallo
-wie geht es dir?
+wie geht es dir?jjh
